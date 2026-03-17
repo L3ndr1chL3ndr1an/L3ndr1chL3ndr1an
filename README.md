@@ -4,7 +4,7 @@
   
 - 🤔 I’m looking for help with HTML/CSS & Python.
   
-- 💬 Ask me about my music taste.
+- 💬 Ask me about anything you like.
   
 - 📫 How to reach me: kolibrifly@proton.me
 
