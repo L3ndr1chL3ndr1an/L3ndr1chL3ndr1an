@@ -7,3 +7,6 @@
 - 💬 Ask me about my music taste.
   
 - 📫 How to reach me: kolibrifly@proton.me
+
+- :left_speech_bubble: My Reddit acc: https://www.reddit.com/user/LendrichLudwigsson/
+  But be aware. It's about politics...
